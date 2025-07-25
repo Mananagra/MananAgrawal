@@ -8,7 +8,7 @@
 - Previously worked on **Minor Project - ML**
 
 - Reach me at **agralmanan@gmail.com**
-
+  
 - Fun fact **Skills are Myth!!**
 
 <h3 align="left">Connect with me:</h3>
